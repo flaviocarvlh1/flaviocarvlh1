@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Flávio Carvalho,
-- ### Hi there 👋 
+- ### Hello there 👋 
 - 🌱 I’m currently studing for a new job
 - 📫 How to reach me: flaviocarvlh1@gmail.com
 
